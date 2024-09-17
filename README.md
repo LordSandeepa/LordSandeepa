@@ -8,16 +8,16 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lordsandeepa&label=Profile%20views&color=0e75b6&style=flat" alt="lordsandeepa" /> </p>
 
-<p align="left"> <a href="https://twitter.com/lordsandeepa" target="blank"><img src="https://img.shields.io/twitter/follow/lordsandeepa?logo=twitter&style=for-the-badge" alt="lordsandeepa" /></a> </p>
+
 
 - 🌱 I’m currently learning **Freaking Load Of Technologies**
-- 💬 Mostly Interested In **Networking**
+- 💬 Mostly Interested In **Networking & CyberSecurity**
 - 🥅 Future Goals: You won't believe
 - 📫 How to reach me **pccsandeepa@gmail.com**
   
 ## 👦 ABOUT ME
 
-I'm a Dead Body Currently Living in a **Matrix**. I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
+I'm a Dead Body who Trying to Escape This **Matrix** . I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
 I believe that the way of heading forward with the surrounding ones is a blessing and can bring me self-satisfaction which means all I need.  
 
 <h3 align="left">Connect with me:</h3>
