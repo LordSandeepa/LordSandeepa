@@ -16,7 +16,7 @@
   
 ## 👦 ABOUT ME
 
-First Of All **F Society**.I'm **Sandeepa Bandara**. A **Dead Body** Living in a Matrix. I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
+First Of All **F Society**.I'm a **Dead Body** Living in a Matrix. I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
 I believe that the way of heading forward with the surrounding ones is a blessing and can bring me self-satisfaction which means all I need.  
 
 <h3 align="left">Connect with me:</h3>
