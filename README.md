@@ -18,7 +18,7 @@
   
 ## 👦 ABOUT ME
 
-I'm a Dead Body who Trying to Escape This **Matrix** . I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
+I'm a Dead Body Which Trying to Escape This **Matrix** . I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
 I believe that the way of heading forward with the surrounding ones is a blessing and can bring me self-satisfaction which means all I need.you won't belive that i created some musical anthems In **Sri Lankan Hip Hop & Pop Music Industry** 🇱🇰
 
 <h3 align="left">Connect with me:</h3>
