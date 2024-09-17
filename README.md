@@ -1,7 +1,7 @@
 
 
 <h1 align="center">
-    <img src="https://readme-typing-svg.herokuapp.com/?color=F7BC4A&font=Righteous&size=35&center=true&vCenter=true&width=500&height=70&duration=6000&lines=What's+Up+Society+🌎;+F+U+!+!+!;" />
+    <img src="https://readme-typing-svg.herokuapp.com/?color=F7BC4A&font=Righteous&size=35&center=true&vCenter=true&width=500&height=70&duration=6000&lines=What's+Up+Society+🌎;+Fck+U+!+!+!;" />
 </h1>
 
 
