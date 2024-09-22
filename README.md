@@ -19,8 +19,7 @@
 ## 👦 ABOUT ME
 
 I live up to enhancing the living standards and business of people around the globe harnessing the cutting-edge technologies in the world.
-I believe that the way of heading forward with the surrounding ones is a blessing and can bring me self-satisfaction which means all I need.you won't belive that i created some musical anthems In **Sri Lankan Hip Hop & Pop Music Industry** 🇱🇰
-
+I believe that the way of heading forward with the surrounding ones is a blessing and can bring me self-satisfaction which means all I need.
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/lordsandeepa" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="lordsandeepa" height="30" width="40" /></a>
